@@ -1,5 +1,0 @@
-# trabajos
-asdjhfgsjadhgfjahgdsfa
-
-asdjkhfgajshdghfjagsd
-ajshdgfjashdgfja
